@@ -1,16 +1,23 @@
-## Hi there 👋
+![ok](https://i.imgur.com/lj3M8jd.png)
 
-<!--
-**crucifixe/crucifixe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+　　　　　　　　⸺⸺⸺　　　　　　　⸺
+　　　　　　　　　　　◜　momento vivere.
 
-Here are some ideas to get you started:
+　　cuddle and hide is **fine**, im not a big talker however. 
+　　Im usually offtab or editing a pony if im alone - feel free to come up to me.
+  　　 　　I've been flagged as an autoclicker so you'll see me going in and out of existence.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+  　　　ship warning, i really only like __gallaluo,  mavitano (mlm), jiaoday, sunyuan, ruscara, dainkae, and baineuv__. 
+
+
+　　　
+　　　
+
+
+　　　
+
+
+      　　 　　  for anything else you should check my carrd.　　  carrd will be back up soon after i redo it
