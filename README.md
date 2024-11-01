@@ -5,7 +5,6 @@
 
 　　cuddle and hide is **fine**, im not a big talker however. 
 　　Im usually offtab or editing a pony if im alone - feel free to come up to me.
-  　　 　　I've been flagged as an autoclicker so you'll see me going in and out of existence.
 
 
 
@@ -20,4 +19,4 @@
 　　　
 
 
-      　　 　　  for anything else you should check my carrd.　　  carrd will be back up soon after i redo it
+      　　 　　  for anything else you should check my carrd.　　  
